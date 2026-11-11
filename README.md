@@ -3,7 +3,7 @@
 
 
 <p align="center">
- $\small\color{#CD957F}{\textsf{ please don't call me " the feet guy " ˊᴖˋ  }}$
+ $\small\color{#548DB5}{\textsf{ please don't call me " the feet guy " ˊᴖˋ  }}$
  <div align="center">
 
 ㅤㅤㅤㅤ
