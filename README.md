@@ -3,7 +3,7 @@
 
 
 <p align="center">
- $\small\color{#548DB5}{\textsf{ sukuna's honored boy ᯠ ⑅ ᯄ }}$
+
  <div align="center">
 
 ㅤㅤㅤㅤ
